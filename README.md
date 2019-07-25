@@ -1,15 +1,11 @@
-## Welcome to Charan's Blog
+# Welcome to Charan's Blog
+## My magical trip to **Bali**,_Indonesia_
 
-You can use the [editor on GitHub](https://github.com/Charan1303/charan1303.github.io/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
+### How it all began
+I was in Hyderabad,India because i had to complete my final exams on 1st year,and that's when my sister and her friends were planning an International trip,planning a trio is easy but **implementing it** is the hard part.So they've decided to go to **Bali**,Indonesia_
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
 
-### Markdown
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
-```markdown
-Syntax highlighted code block
 
 # Header 1
 ## Header 2
