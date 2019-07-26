@@ -2,7 +2,7 @@
 ## My magical trip to **Bali**,_Indonesia_
 
 ### How it all began
-I was in Hyderabad,India because i had to complete my final exams on 1st year,and that's when my sister and her friends were planning an International trip,planning a trio is easy but **implementing it** is the hard part.So they've decided to go to **Bali**,Indonesia_
+I was in Hyderabad,India because i had to complete my final exams on 1st year,and that's when my sister and her friends were planning an International trip,planning a trip is easy but **implementing it** is the hard part.So they've decided to go to **Bali**,Indonesia_.
 
 
 
