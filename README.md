@@ -1,8 +1,9 @@
 # Welcome to Charan's Blog
-## My magical trip to **Bali**,_Indonesia_
+## My Magical trip to **Bali**,_Indonesia_
 
 ### How it all began
-I was in Hyderabad,India because i had to complete my final exams on 1st year,and that's when my sister and her friends were planning an International trip,planning a trip is easy but **implementing it** is the hard part.So they've decided to go to **Bali**,Indonesia_.
+I was in Hyderabad,India because i had to complete my final exams on 1st year,and that's when my sister and her friends were planning an International trip,planning a trip is easy but **implementing it** is the hard part.So they've decided to go to **Bali**,Indonesia.That's when i started to use a thing called Law of attraction which i read it off a book called **Secret** by **Rhonda Byrne** which i definitely _recommend_ the readers to read it!Because it has worked for me,if it didn't then i wouldn't have gone to _Bali_ ;Here is a [Link](https://www.readingsanctuary.com/the-secret/) to that book.So since i do all the travel arrangements when anyone in my family is planning a trip.My sister has asked me to check out the Flights,Accomodation etc.That's when i started to imagine that i was already in _Bali_ enjoying the beautiful view.That's how it all began.
+
 
 
 
