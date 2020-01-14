@@ -45,3 +45,5 @@ Today, We were getting ready to go to Waterbom Park, We have found a bike dealer
 Here's a photo of the glass slide:
 
 ![Watch the video](https://www.waterbom-bali.com/media/wbrides/gallery/Smash_Down_2.0_03.jpg)]
+
+Then we collected our bikes and proceeded to Uluwatu Temple, which was a 1 hour ride from Waterbom, Bali.
