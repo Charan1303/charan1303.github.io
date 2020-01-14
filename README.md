@@ -46,4 +46,8 @@ Here's a photo of the glass slide:
 
 ![Watch the video](https://www.waterbom-bali.com/media/wbrides/gallery/Smash_Down_2.0_03.jpg)
 
-Then we collected our bikes and proceeded to Uluwatu Temple, which was a 1 hour ride from Waterbom, Bali.
+Then, We collected our bikes and proceeded to Uluwatu Temple, which was a 1 hour ride from Waterbom, Bali.
+
+![Uluwatu](https://lh3.googleusercontent.com/ngaY2vAznAJQhz-NMnuAgflNqfpggTR5ChHDxV5ovjMaJxU07fiZg0FkBWaEokNrQzJQBYJcbn_JjmgiClvNCoGyrjiVrKGA4wGOuT56BpA2T4sWkXI4VdJuO_p08Ic75do2vl_NJQ6LM9nE2mzPdeA4ca5d95SdOrLnVeRxlgW658bgMlaAA5U6ElHBBeAV85JySttkLJJF8SYywAPOXF0SV5bc_FchpCD54kP6Rlh6GF8hN3H-5h4_Mvjk6Vdq9Fykql1xOhIkBVWbRcg5g_scXxE5smjMKl2SQat8QEi_ogHBSWywYoh2a379-oD3xWQSL2H-Gg9SWsp6DnADVQMM4P1Sdm3CD1Qn7F_1zn1QH9ytq0cepxQn3dl9diDFNty0-YOwqrPWGhn1gghgfCBWDXep3Vaar-ArFm8EosxUMGgy8ub0z62qANJ66NGbzv304nK_lHYD6IjYqh1Bxmdg5fsScFZAn9QEuo6ju5hGrbI7dGXAetEa6QNh0ogOsG655YANR_0Y3sXSblkuiACxxqwI7u_HjhfFB3nNK98TVY760l3ur7oT1yvSwImOCwicc9MrAuAAWfj0jNv96I7ukl4YiJznaJJUJW61jL4id86c2lcd_MuPvVL__0s-Yrw9KyEFMp6VtlxkI61q3TCTyAJPfSSK8dKL3cDHCRPpkALp41xJuwo=w1280-h594-no)
+
+**MAGICAL, RIGHT?**
