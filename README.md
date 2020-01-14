@@ -44,6 +44,6 @@ While going to the mall, We saw a statue kind maybe it was Ramudu and, We entere
 Today, We were getting ready to go to Waterbom Park, We have found a bike dealer, He said he will give us bikes at afternoon today, So, We decided to go to Waterbom by Car, We have gone there and, They gave us a band for locker, First, We proceeded to the locker room, We have put our valuables in the locker and, Then, my sister got changed and, I was already in a swimming attire, We then proceeded to the rides, I gave my spectacles down and, They gave me a band for that, The thing I had most fun was going inside the glass door and, Then the countdown 3,2,1... And then BOOM!! You fall down. That was the crazy part(Literally, You could feel the Adrenaline rush inside your body). And, Then, We rode some rides, and then there was a slide which goes through the closed tube which has disco lights and, Then you go up and go down and into the pool, and then there was Superbowl, It was nice, It was like, a bowl and then you go down and go round and round the cup and I fell down backside and gulped some water.
 Here's a photo of the glass slide:
 
-![Watch the video](https://www.waterbom-bali.com/media/wbrides/gallery/Smash_Down_2.0_03.jpg)]
+![Watch the video](https://www.waterbom-bali.com/media/wbrides/gallery/Smash_Down_2.0_03.jpg)
 
 Then we collected our bikes and proceeded to Uluwatu Temple, which was a 1 hour ride from Waterbom, Bali.
